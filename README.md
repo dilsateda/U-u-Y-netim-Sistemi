@@ -1,1 +1,1 @@
-# U-u-Y-netim-Sistemi
+# U-u-Yonetim-Sistemi
